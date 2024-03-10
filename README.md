@@ -1,2 +1,3 @@
 # Miss-world-2024
 Miss world 2024 di NOT win the crown but you know what happened?
+India World Miss 2022 Even though Sini Shetty did not win the Miss World 2024 title, it was obvious that her beauty pageant outfit choice was winning her a lot of hearts. Today, in Mumbai, the 71st Miss World pageant was held, heralding the event's long-awaited return to India after 28 years. Although the assembly of international beauty queens was an amazing sight, Miss India World 2022 Sini Shetty was the one who stole the show. She put her trust in a long white gown covered in sequins and crystals for her final look, despite the amazing costumes that ranged from Western to ethnic in the run-up to the big event.
